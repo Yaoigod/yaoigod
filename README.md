@@ -1,27 +1,10 @@
 <p align="center">
 <img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif.com-optimize.gif" width="350" align="left"/> 
   <div align="center"/>
-    
-$$ \huge\color{#9b62a4}{\text{𝕿𝖍𝖊 𝖆𝖗𝖙𝖎𝖘𝖙 𝖜𝖍𝖔 𝖉𝖗𝖆𝖜𝖘 𝖉𝖚𝖓𝖌𝖊𝖔𝖓𝖘. ⊹ ࣪ ˖ ໒.}} $$
 
-$$ \color{#d670c3}{\text{"ꜱᴇᴏ ɢɪᴏ, ᴀʀᴇ ʏᴏᴜ ᴛʀᴜʟʏ ʜᴜᴍᴀɴ?"}} $$
+Oh geez hi there, nice to meet you Im Navi! Both @Navistel and @Yaoigod are main accounts I run. Why? Yaoigod is just too good of a username to leave rotting,,,,I take pride in snagging username yaoigod btw
 
-‎ 
-‎ 
-
-$$ \color{#cc90c8}{\text{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}} $$
-
-$$ \color{#d8a3bc}{\text{ɴᴀᴠɪ \ xʏʀᴇɴ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ʜᴇ / ᴀɴʏ}} $$
-
-$$ \color{#e0b2c3}{\text{ɪɴᴛᴘ ‎ ‎‎  ‎ ‎ ‎ 18 ‎ ‎ ‎ ‎ ‎ ‎ ᴛ-ᴍᴀꜱᴄ}} $$
-
-$$ \color{#ffdbf5}{\text{ᴅʀʏ ᴛᴇxᴛᴇʀ ᴀɴᴅ ᴀɴ ᴀɴᴛɪ-ꜱᴏᴄɪᴀʟ ꜰʀᴇᴀᴋ, ʙᴜᴛ ɪ ᴅᴏ ʟᴀᴜᴠᴇ ᴀʟʟ ᴍʏ ꜰʀɪᴇɴᴅꜱ!}} $$
-
-
-‎ 
-
-<img src="https://64.media.tumblr.com/288ab858cd1dd32b2f61a20906700207/313453035e66da41-ad/s640x960/b133119a0c3103ae22e1eff69904468c15b6ab92.gifv" width="450"/>
-
+Same things said on my other account, Im introverted so I may not talk much but company is very much welcome!! (im lonely pls accompany me)
 
 <a href="https://rentry.org/whengodgivesyoufreetime"><img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif.com-gif-maker%20(6).gif" width="220"/><a/>
 
