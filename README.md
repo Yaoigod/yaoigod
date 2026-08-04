@@ -1,6 +1,6 @@
 <p align="center">
-<img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif.com-optimize.gif" width="350" align="left"/> 
-  <div align="center"/>
+<img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif.com-optimize.gif" width="350"/> 
+  <div align="center"/><br>
 
 Oh geez hi there, nice to meet you Im Navi! Both @Navistel and @Yaoigod are main accounts I run. Why? Yaoigod is just too good of a username to leave rotting,,,,I take pride in snagging username yaoigod btw
 
