@@ -4,7 +4,7 @@
 
 <details align="left">
   <summary> <sup>About me? Ok!</sup> </summary>
-   <sup>-  A very curious person. 80% of what I say is joke, pls dont take me serious, unless the situation calls for it. No you cannot have my yaoigod handle STOP ASKINGMEEEE.</sup> <br>
+   <sup>-  A very curious person. 80% of what I say is joke, pls dont take me seriously, unless the situation calls for it. No you cannot have my yaoigod handle STOP ASKINGMEEEE.</sup> <br>
    <sup>- I like making friends heh pls befriend me heh. </sup><br>
    <sup>- I inhale yaoi like theres no tomorrow, beware. /j. if u wanan see more of my shenanigans about yaoi go check my listo or something</sup> 
 
