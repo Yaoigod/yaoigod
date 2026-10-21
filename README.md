@@ -1,13 +1,20 @@
-<p align="center">
-<img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif.com-optimize.gif" width="350"/> 
-  <div align="center"/><br>
+<div align="center">
+<img src="https://file.garden/aZFgsf3ch2qR4q-s/9c491ced364103fa198841999004c62f.jpg"/>
+<br> <sup>p.s. Old xian pls lock in, i wanna see more of them thanks</sup>
 
-Oh geez hi there, nice to meet you Im Navi! Both @Navistel and @Yaoigod are main accounts I run. Why? Yaoigod is just too good of a username to leave rotting,,,,I take pride in snagging username yaoigod btw
+<details align="left">
+  <summary> <sup>About me? Ok!</sup> </summary>
+   <sup>-  A very curious person. 80% of what I say is joke, pls dont take me serious, unless the situation calls for it. No you cannot have my yaoigod handle STOP ASKINGMEEEE.</sup> <br>
+   <sup>- I like making friends heh pls befriend me heh. </sup><br>
+   <sup>- I inhale yaoi like theres no tomorrow, beware. /j. if u wanan see more of my shenanigans about yaoi go check my listo or something</sup> 
 
-Same things said on my other account, Im introverted so I may not talk much but company is very much welcome!! (im lonely pls accompany me)
+<sup> [Listography of yaoi](https://listography.com/danhengpt) </sup>
+</details>
 
-<a href="https://rentry.org/whengodgivesyoufreetime"><img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif.com-gif-maker%20(6).gif" width="220"/><a/>
+<img src="https://file.garden/aZFgsf3ch2qR4q-s/8fa5b94a946f780022d59733de84ff88.jpg" width=300/>
+<br> <img src="https://file.garden/aZFgsf3ch2qR4q-s/8c9ec339f79c390e7a60bd3a97dd2c77~2.jpg" width=300/>
 
+<br> <sup>If u genuinely want none of this slop go check out my other account LMAOO</sup>
 
 
 <!--
